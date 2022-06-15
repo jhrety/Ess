@@ -2,4 +2,4 @@
 
 Juste Quelques Essais. 
 Ben ouais, quelques essais, juste.
-La suite c'est ceci !
+Et la suite, c'est ceci et cela !
