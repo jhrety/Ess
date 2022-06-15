@@ -1,4 +1,4 @@
 # Ess
 
-Juste quelques essais 
+Juste quelques essais. 
 Ben ouais, quelques essais, juste.
